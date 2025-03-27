@@ -6,7 +6,7 @@
 # <img src="https://user-images.githubusercontent.com/74038190/216649441-c7a4d602-5d9b-4c5b-99d4-697bddf6f8e0.gif" width="40"/> ​🇮​❜​🇲​ ​🇲​​🇮​​🇳​​🇹​​🇦​​🇩​​🇦​!
 
 <!--Start Intro-->               
-<img align="right" height="auto" alt="guy" width="180" src="https://user-images.githubusercontent.com/74038190/212749443-0810e511-4f46-4492-96aa-3c110d7bc41a.gif" />
+<img height="auto" alt="guy" width="240" src="https://user-images.githubusercontent.com/74038190/212749443-0810e511-4f46-4492-96aa-3c110d7bc41a.gif" />
 
 - ✨ 𝘐𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘦𝘥 𝘪𝘯 𝘍𝘳𝘰𝘯𝘵𝘦𝘯𝘥 𝘢𝘯𝘥 𝘜𝘟/𝘜𝘐 𝘋𝘦𝘴𝘪𝘨𝘯 :)
 - 🌱 𝘐’𝘮 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘢 3𝘳𝘥 𝘺𝘦𝘢𝘳 𝘊𝘰𝘮𝘱𝘶𝘵𝘦𝘳 𝘚𝘤𝘪𝘦𝘯𝘤𝘦 𝘴𝘵𝘶𝘥𝘦𝘯𝘵 𝘢𝘵 𝘊𝘩𝘶𝘭𝘢𝘭𝘰𝘯𝘨𝘬𝘰𝘳𝘯 𝘜𝘯𝘪𝘷𝘦𝘳𝘴𝘪𝘵𝘺.
